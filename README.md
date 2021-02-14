@@ -1,0 +1,1 @@
+# yamafuji.github.io
